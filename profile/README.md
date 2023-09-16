@@ -1,4 +1,4 @@
-![Server Banner](https://pokebedrock.com/favicon.ico)
+![Server Banner](http://pokebedrock.com/images/thumbnail.jpg)
 
 ## About Us
 
