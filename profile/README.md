@@ -17,5 +17,5 @@ We are proud to partner with other servers and operate under the name "Pokebedro
 Join us today and become a part of our dynamic and ever-growing Minecraft: Bedrock Edition community!
 
 Connect with us:
-- Website: [pokebedrock.com](https://serverwebsite.com)
+- Website: [pokebedrock.com](https://pokebedrock.com)
 - Discord: [discord.gg/pokebedrock](https://discord.gg/pokebedrock)
