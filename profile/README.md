@@ -2,7 +2,7 @@
 
 ## About Us
 
-We are a thriving Minecraft: Bedrock Edition server with an incredible community of over 22,000 registered players and a continuous influx of new members, with over 200 players joining us each week! Our server provides an immersive and exciting gaming experience that keeps players engaged and coming back for more.
+We are a thriving Minecraft: Bedrock Edition server with an incredible community of over 32,000 registered players and a continuous influx of new members, with over 200 players joining us each week! Our server provides an immersive and exciting gaming experience that keeps players engaged and coming back for more.
 
 ## Our Team
 
